@@ -1,1 +1,1 @@
-The first PYTHON program
+我的第一个程序 未来很长 好好努力 人生无限
